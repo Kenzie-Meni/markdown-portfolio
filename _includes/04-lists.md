@@ -1,1 +1,6 @@
-Replace this with a list of your favorite things.
+1. oreos
+2. peanut butter
+   
+   2a.sandwiches 
+   
+   2b.bananas
